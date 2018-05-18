@@ -14,3 +14,6 @@ Christmas is a lie,
 It was a Pagan holiday,
 they moved the date.
 
+bob is a huge cuck. 
+
+I hate him. this is a very dumb assignment
